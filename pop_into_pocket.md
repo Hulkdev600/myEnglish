@@ -11,3 +11,9 @@ ex) I held up my end of deal
 ex) I've done my part. My consience is clean.
 
 **I don't think i've heard of that** : 그건 들어본적 없는데?
+
+**Would you look at**
+이것봐 
+
+**You should download it**
+*'너도 다운로드 해봐'로 명령조가 아닌 말투로 권유할때 
